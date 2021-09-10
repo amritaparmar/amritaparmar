@@ -1,6 +1,6 @@
 👋 Hi, I’m Amrita Parmar
 
-Dedicated and highly motivated candidate of Web designer to show my skill and creativity in digital world. Have knowledge of HTML, CSS, Sass, Bootstrap, WordPress, Shopify, jQuery, Figma. Also I have done certified course of digital marketing and business analysis.
+Dedicated and highly motivated candidate of Web designer (having 3 years of experience) to show my skill and creativity in digital world. Have knowledge of HTML, CSS, Sass, Bootstrap, WordPress, Shopify, jQuery, Figma. Also I have done certified course of digital marketing and business analysis.
 
 I believe work ethics is a talent and there is a smart way to work hard. Goal is to Look for the opportunities to showcase my skill sets in managing my work through process improvement, planning, assessing and implementing programs.
 
